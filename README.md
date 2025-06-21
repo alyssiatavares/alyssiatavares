@@ -1,4 +1,4 @@
-🚀 Full Stack Developer | Transitioning from Law to Tech
+🚀 Back End Developer 
 💻 Passionate about building clean, user-centered applications
 🌎 Currently based in California | Open to remote or hybrid opportunities
 
